@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Peter  
+- 👀 I’m interested in AI workflow automation, quantum physics, and building frictionless systems for neurodivergent thinkers.  
+- 🌱 I’m currently learning advanced workflow automation with AI agents and optimizing digital hygiene for ADHD-friendly productivity.  
+- 💞️ I’m looking to collaborate on projects that simplify complex processes, enhance executive function through intelligent design, and bridge the gap between neurodiversity and tech efficiency.  
+- 📫 Reach me at peterstark.phoenix@gmail.com  
+- I live on a lake in Maine with my two rat terriers, Olive (14) and Pearl (1), and I'm an early riser who finds peak creativity around 4–7 AM.  
